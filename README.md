@@ -1,6 +1,6 @@
 # 👋 Hola, soy George Chasquibol León
 
-### Project Manager | Negocios Internacionales | Tecnología | Inteligencia Artificial
+### Project Manager | Negocios Internacionales | Gestión de Proyectos Tecnológicos | Inteligencia Artificial
 
 📍 Lima, Perú 🇵🇪
 
